@@ -1,1 +1,1 @@
-- 👋 As-salamu alaykum, I’m @Agab-dev and I like cats🐈
+- 👋 As-salamu alaykum, I’m @Agab-dev and I like cats
