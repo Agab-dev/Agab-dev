@@ -1,1 +1,1 @@
-- As-salamu alaykum, I’m Agab and I like cats
+- As-salamu alaykum, I’m Agab
